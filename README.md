@@ -1,1 +1,1 @@
-https://github.com/TuneC22/ono-tebe-nado-ad
+https://github.com/gobno338-ship-it/ono-tebe-nado-ad
